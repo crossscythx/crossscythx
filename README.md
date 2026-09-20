@@ -1,6 +1,6 @@
 <a href="https://ibb.co/B5CDTK6B"><img src="https://i.ibb.co/NdyhWnNK/photo-2026-09-10-01-05-30.jpg" alt="photo-2026-09-10-01-05-30" border="0"></a>
 
-ㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤ ${\color{#8E8E8E}i'm}$ ${\color{#989898}scythx.}$ㅤㅤ ${\color{#A4A4A4}they}$ ${\color{#AAAAAA}/}$ ${\color{#B3B3B3}he}$
+ㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤ ${\color{#8E8E8E}we}$ ${\color{#8E8E8E}are}$ ${\color{#989898}scythx.}$ㅤㅤ ${\color{#A4A4A4}they}$ ${\color{#AAAAAA}/}$ ${\color{#B3B3B3}he}$
 
 ㅤㅤ ㅤㅤㅤㅤ ㅤ ${\color{#8E8E8E}ptsd,}$ㅤ ${\color{#8E8E8E}npd,}$ㅤ ${\color{#989898}did,}$ㅤ ${\color{#989898}slow}$ ${\color{#A4A4A4}and}$ ${\color{#A4A4A4}confused.}$ㅤ ${\color{#AAAAAA}always}$ ${\color{#B3B3B3}iwc.}$
 
